@@ -1,1 +1,1 @@
-![Alt Text]([https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif](https://i.imgur.com/fY0jn9k.gif))
+<img src="https://i.pinimg.com/originals/93/e0/70/93e070dd929400ac52062f0d7645e088.gif" width="40" height="40" />
